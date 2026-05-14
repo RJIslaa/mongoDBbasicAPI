@@ -23,3 +23,19 @@
 
 # Exercise
 
+<img width="1916" height="1010" alt="image" src="https://github.com/user-attachments/assets/8acd3a91-8345-48c8-ade9-ca375435912c" />
+
+
+<img width="1911" height="411" alt="image" src="https://github.com/user-attachments/assets/360b0b83-3c29-4004-ac59-24c78e604ce1" />
+
+
+<img width="1902" height="673" alt="image" src="https://github.com/user-attachments/assets/84273c83-c926-4873-a0c5-e617c1771370" />
+
+<img width="1908" height="958" alt="image" src="https://github.com/user-attachments/assets/e4666382-6046-4fe0-a541-fa92583f9634" />
+
+<img width="1165" height="631" alt="image" src="https://github.com/user-attachments/assets/b0cde433-b923-4557-b38f-a67b8b96fa12" />
+
+<img width="1878" height="838" alt="image" src="https://github.com/user-attachments/assets/70e9ce9a-4e71-43d9-912a-507feca67905" />
+
+
+
